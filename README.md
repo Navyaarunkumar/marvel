@@ -5,5 +5,5 @@
 # api![api](https://github.com/Navyaarunkumar/marvel/assets/153939595/30e255f0-75e2-4f29-b197-fb59f2f1404e)
 # port![portfolio](https://github.com/Navyaarunkumar/marvel/assets/153939595/c2343d4e-18df-43d3-ad10-6fac50ced6a4)
 # tinker23![![tinker 23](https://github.com/Navyaarunkumar/marvel/assets/153939595/8f2dffed-527d-43f7-adbe-2370b2da3f09)
-# kmap![karagale](https://www.tinkercad.com/things/kMtsPK8Hzbl-navyas-burgler-alarm-?sharecode=JOws2WCbPUB-gaydjKYdQxQDuagTqpedBmoqTpNw47I)
-# kmap![bulgar alaram](blob:https://web.whatsapp.com/5b63b862-3d19-4c55-ac46-0491e41e52fe0
+# kmap![kara![alaram](https://github.com/Navyaarunkumar/marvel/assets/153939595/4bbef197-dd06-4c17-b647-e199c73d8ebc)
+# kmap![alaram](https://github.com/Navyaarunkumar/marvel/assets/153939595/4664b717-6ab5-49f4-ae06-dba598cd7a7b)
