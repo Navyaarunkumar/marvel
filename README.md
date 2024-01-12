@@ -7,3 +7,4 @@
 # tinker23![![tinker 23](https://github.com/Navyaarunkumar/marvel/assets/153939595/8f2dffed-527d-43f7-adbe-2370b2da3f09)
 # kmap![kara![alaram](https://github.com/Navyaarunkumar/marvel/assets/153939595/4bbef197-dd06-4c17-b647-e199c73d8ebc)
 # kmap![alaram](https://github.com/Navyaarunkumar/marvel/assets/153939595/4664b717-6ab5-49f4-ae06-dba598cd7a7b)
+# dc![speed](https://github.com/Navyaarunkumar/marvel/assets/153939595/4336be52-f553-4707-a45f-c45513e17487)
