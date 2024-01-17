@@ -8,3 +8,5 @@
 # kmap![kara![alaram](https://github.com/Navyaarunkumar/marvel/assets/153939595/4bbef197-dd06-4c17-b647-e199c73d8ebc)
 # kmap![alaram](https://github.com/Navyaarunkumar/marvel/assets/153939595/4664b717-6ab5-49f4-ae06-dba598cd7a7b)
 # dc![speed](https://github.com/Navyaarunkumar/marvel/assets/153939595/4336be52-f553-4707-a45f-c45513e17487)
+# osci![555 @1](https://github.com/Navyaarunkumar/marvel/assets/153939595/45a360fc-f8f6-4545-86d5-a7e7aed412a2)
+# osci2![![555@ 2](https://github.com/Navyaarunkumar/marvel/assets/153939595/ba3ca57d-51ab-4bb5-b619-f9543ad44969)
