@@ -12,3 +12,4 @@
 # osci2![![555@ 2](https://github.com/Navyaarunkumar/marvel/assets/153939595/ba3ca57d-51ab-4bb5-b619-f9543ad44969)
 # voltage![! blob:https://web.whatsapp.com/7c94fca8-a7f2-421d-9f2b-37f992f94412)
 # voltage![(blob:https://web.whatsapp.com/7c94fca8-a7f2-421d-9f2b-37f992f944120
+#!  
