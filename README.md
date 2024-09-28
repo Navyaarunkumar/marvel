@@ -10,6 +10,8 @@
 # dc![speed](https://github.com/Navyaarunkumar/marvel/assets/153939595/4336be52-f553-4707-a45f-c45513e17487)
 # osci![555 @1](https://github.com/Navyaarunkumar/marvel/assets/153939595/45a360fc-f8f6-4545-86d5-a7e7aed412a2)
 # osci2![![555@ 2](https://github.com/Navyaarunkumar/marvel/assets/153939595/ba3ca57d-51ab-4bb5-b619-f9543ad44969)
-# voltage![! blob:https://web.whatsapp.com/7c94fca8-a7f2-421d-9f2b-37f992f94412)
+# voltage![! blob:https:/![45b32fa3-f760-4272-ac05-2874de6ba5d6](https://github.com/user-attachments/assets/07dbb1e5-79b4-4db9-b24b-59b66ebb12a2)
+/web.whatsapp.com/7c94fca8-a7f2-421d-9f2b-37f992f94412)
 # voltage![(blob:https://web.whatsapp.com/7c94fca8-a7f2-421d-9f2b-37f992f944120
-#!  
+#filter![sec]
+
